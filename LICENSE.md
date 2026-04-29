@@ -1,4 +1,4 @@
-
+get strong for brainrots premium Script is the best get strong for brainrots Script, featuring silent aim and auto-heal. Safe and powerful for all
 
 
 
